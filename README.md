@@ -8,4 +8,4 @@ https://www.ets.org/gre/test-takers/general-test/prepare/content/verbal-reasonin
 
 https://www.ets.org/pdfs/gre/gre-sample-questions.pdf
 
-Relevant Resources:https://medium.com/@prasadostwal/all-in-one-word-list-for-gre-vocabulary-8b6f24a9cdc8
+Relevant Resources: https://medium.com/@prasadostwal/all-in-one-word-list-for-gre-vocabulary-8b6f24a9cdc8
